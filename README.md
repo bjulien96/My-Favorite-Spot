@@ -1,2 +1,2 @@
-# My-Favorite-Spot
- Project IIHTPAF
+# If I Have to Pick A Favorite
+ My Favorite Vacation Spot
